@@ -1,0 +1,2 @@
+# Masline-avionics-electronic-parts-distributor-avionics-electronic-components-supplier
+Masline is an avionics electronic parts distributor and avionics electronic components supplier providing certified, high-reliability components for aerospace, flight control, navigation, and communication systems. With strict quality standards, traceability, and dependable sourcing, Masline supports mission-critical avionics manufacturing.
